@@ -1,0 +1,1 @@
+# Sanki-bir-bulmaca
